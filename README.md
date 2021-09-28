@@ -8,4 +8,4 @@ I like writing some poems or any else sometimes, babbling many different stuffs,
 I warn to you that the world is so f*cking vicious. It's quiet rare to connect with people who have truly sincere favor.
 People willingly lend their hands if only if you switch what they're gonna do by a mount of fresh sheets. 
 So, please, hold on and don't be pathetic ongoing! I believe that one day we can arrive at our own destiny. 
-Cheer uppp!
+Cheer up!
